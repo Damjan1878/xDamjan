@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xDamjan
+- 👋 Hi, I’m @Damjan1878
 
 - 👀 I’m interested in making Games.
 
